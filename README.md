@@ -1,2 +1,2 @@
-# louloudisx.github.io
+# afk.github.io
 brb
